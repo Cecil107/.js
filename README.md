@@ -1,3 +1,4 @@
 # .js
 ModPE repository
-sem čech:D
+sem čech :lollipop:
+
